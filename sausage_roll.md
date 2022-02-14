@@ -30,6 +30,7 @@ brush with eggwash
 bake 20 minutes
 
 serve with HP sauce https://en.wikipedia.org/wiki/HP_Sauce
-of A.1. Sauce https://en.wikipedia.org/wiki/A.1._Sauce
+
+or A.1. Sauce https://en.wikipedia.org/wiki/A.1._Sauce
 
 #fingerfood
