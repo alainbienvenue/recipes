@@ -34,3 +34,8 @@ serve with HP sauce https://en.wikipedia.org/wiki/HP_Sauce
 or A.1. Sauce https://en.wikipedia.org/wiki/A.1._Sauce
 
 #fingerfood
+----
+was not enough meat for all the pastry
+everyone loved it, but I felt it was bland
+look to make meat mixture from ground pork and spices.
+
