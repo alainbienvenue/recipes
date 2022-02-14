@@ -1,0 +1,18 @@
+
+spray a sheet of parchemin with oil
+roll to 12x12-16
+ - 400g low hydration pizza dough
+top with
+ - 120 g cup pizza sauce
+ - 100 g chopped peperoni 
+ - 100 g shredded mozzarella
+ roll into a 12" log
+ refrigerate 2 hours
+ cut into 12 pieces with sharp or serrated knife
+ dip bottom in cornmeal
+ place on a baking sheet
+ cook @400 20 minutes
+ 
+ Choose a peperoni that will not become too greasy when cooked,
+ or cook it ahead of time to prevent pinwheels from becoming greasy.
+ 
