@@ -11,7 +11,7 @@ top with
  cut into 12 pieces with sharp or serrated knife
  dip bottom in cornmeal
  place on a baking sheet
- cook @400 20 minutes
+ cook @450 20 minutes
  
  Choose a peperoni that will not become too greasy when cooked,
  or cook it ahead of time to prevent pinwheels from becoming greasy.
