@@ -1,0 +1,35 @@
+mix
+ - 375 g breakfast sausage
+ - 1 beaten egg
+ - 1/4 cup bread crumb
+
+set oven to 425
+
+beat together in a small bowl
+ - 1 egg
+ - 1 tbsp water
+unwrap first sheet from 
+
+- 400 g puff pastry package
+
+cut in 3 pieces on folds
+place 1/6 of the sausage mix on a line in the middle of each strip
+
+fold over one side
+
+wet top if needed
+
+fold other side 
+
+cut each strip in 4-6 pieces
+
+place cut side down on baking sheet covered in parchemin
+
+brush with eggwash
+
+bake 20 minutes
+
+serve with HP sauce https://en.wikipedia.org/wiki/HP_Sauce
+of A.1. Sauce https://en.wikipedia.org/wiki/A.1._Sauce
+
+#fingerfood
